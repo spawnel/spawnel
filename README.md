@@ -1,3 +1,1 @@
-OK. Nvm. https://rentry.co/spawnel Look at this for now
-
-I thiNK I'm a prettyNice person.
+I think I’m a Ptetty nicr person
