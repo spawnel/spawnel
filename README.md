@@ -1,1 +1,2 @@
-I think I’m a Ptetty nicr person
+I think I’m a pretty nice person... 
+Feel free to c+h and sit next to me and stuff
